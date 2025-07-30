@@ -1,0 +1,1 @@
+# Stator_frame_casting
